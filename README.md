@@ -1,1 +1,1 @@
-# Arxix Collect Contact Information
+# Arxiv Collect Contact Information
